@@ -1,1 +1,1 @@
-# spiritbottle
+# spiritbottle a bit about myself
